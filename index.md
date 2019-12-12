@@ -3,9 +3,7 @@ Updated:
 2019-12-11-1741
 
 ![motel-pool](files/20130611_IMG_0436.jpg)
-
 ![a pic](files/IMG_0602.jpg)
-![a pic](files/IMG_1816 5x7a.jpg)
 ![a pic](files/IMG_1819b5x7a.jpg)
 ![a pic](files/IMG_8628b_22-11x14a.jpg)
-![a pic](files/Just put it in the barn..jpg)
+
